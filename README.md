@@ -2,7 +2,7 @@
 
 # Redecor Hack 2022 Cheats Generator Unlimited Gold & Cash and more
 
-[Click Here For Redecor Gold & Cash Generator](https://gamergeek.xyz/cofb/)
+[Click Here For Redecor Gold & Cash Generator](https://gamergeek.xyz/redfb/)
 
 ----
 
